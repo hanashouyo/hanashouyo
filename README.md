@@ -2,7 +2,7 @@
 - 👀 I’m interested in Art and Coding.
 - 🌱 I’m currently learning Web Development.
 - 📫 How to reach me @tplinksupremacy on Twitter!
-- 😄 Pronouns: Any Pronouns
+- 😄 Pronouns: She/Them
 - ⚡ Fun fact: I love to draw art and animate. Along with Coding, Editing, and create new things. 
 
 <!---
